@@ -1,1 +1,1 @@
-# I got some ideas for information/cyber security things
+# Information Security / Cybersecurity Related Stuffz
